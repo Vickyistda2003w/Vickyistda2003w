@@ -5,6 +5,7 @@
 - 📫 How to reach me vickyistda2003w@farmsucht.at
 - 😄 Pronouns: She
 - ⚡ Fun fact: ...
+- Minecraft Server: farmsucht.at
 
 <!---
 Vickyistda2003w/Vickyistda2003w is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
