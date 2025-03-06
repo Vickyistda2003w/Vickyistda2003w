@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning HTML
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me vickyistda2003w@farmsucht.at
-- 😄 Pronouns: She
+- 😄 Pronouns: She [Transgender]
 - ⚡ Fun fact: ...
 - Minecraft Server: farmsucht.at
 
